@@ -10,4 +10,4 @@ Para dúvidas ou mais informações, entre em contato:
 
 - **E-mail**: contato@machinecodes.com
 - **LinkedIn**: [Machine Codes](https://linkedin.com/company/machinecodes)
-- **Site**: [www.machinecodes.com](https://machinecodes.com)
+- **Site**: [www.machinecodes.store](https://machinecodes.store)
